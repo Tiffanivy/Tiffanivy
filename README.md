@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tiffanivy
+- 👀 I’m interested in learning how to code.
+- 🌱 I’m currently learning the introductory basis of coding.
+- 💞️ I’m looking to collaborate on different learning activities.
+- 📫 You can reach me on my email tiffanivy254@gmail.com.
